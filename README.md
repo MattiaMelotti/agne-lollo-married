@@ -4,8 +4,8 @@ C'era una volta un ranocchio scaltro, di quelli che in acqua nessuno riusciva a 
 
 Di lei, invece, si sa una cosa sola ma vale più di mille altre: un cuore d'oro, sempre gentile con tutti, specialmente con i bambini che sognava di insegnare a nuotare.
 
-Tra un tuffo e una schiacciata a canestro (di rete, si intende), il ranocchio e la fanciulla hanno deciso di dire sì — e da qui in poi la storia continua insieme, per sempre.
+Tra un tuffo e un tiro in porta (di rete, si intende), il ranocchio e la fanciulla hanno deciso di dire sì — e da qui in poi la storia continua insieme, per sempre.
 
 🐸🤍
 
-Guarda il video: [Agne-Lollo.mp4](https://mattiamelotti.github.io/agne-lollo-married/)
+Guarda il mini video esplicativo del giorno del matrimonio: [Agne-Lollo.mp4](https://mattiamelotti.github.io/agne-lollo-married/)
